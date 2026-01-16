@@ -1,4 +1,4 @@
-# ALAPH HIWASE 
+# ALAPA HIWASE 
 I AM DEDICATED TO MBBS IN 2ND YEAR IN NOSMA IN VLADIKAVAKAZ 
 MY LIFE IN RUSSIA 
 Student life in the Russia as a med strudent
@@ -38,3 +38,25 @@ communication and diagnostic skills.
 Evening: Study Time and Self-Development
 After classes, it’s time to hit the books because medical education demands consistent roundup and efforts, so most of your classmate spends evenings revising lecture notes, preparing for upcoming tests, or working on research assignments, occasionally you can also read self-help books or watch shows.
 
+NewsMore
+About 14,800 results
+
+
+SKILLS FOR MED STUDENTS IN RUSSIA
+Studying MBBS in Russia equips students with a range of skills essential for their future medical careers. Here are some key skills that students are encouraged to develop during their studies:
+Communication Skills: Essential for interacting with patients and colleagues in clinical settings. 
+1
+Technical Proficiency: Mastery of medical technology and equipment used in clinical practice. 
+1
+Clinical Skills: Practical skills gained through hands-on experience in hospital rotations. 
+1
+Research Skills: Ability to conduct research and participate in medical studies. 
+1
+Ethical Decision-Making: Understanding and applying ethical principles in medical practice. 
+1
+
+These skills are complemented by a strong foundation in theoretical knowledge, which is crucial for effective diagnosis and patient care. The curriculum is designed to ensure that students are well-prepared for the challenges of modern medicine. 
+1
+
+
+3 Sources
