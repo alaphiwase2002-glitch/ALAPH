@@ -1,4 +1,5 @@
 # ALAPH HIWASE 
+I AM DEDICATED TO MBBS IN 2ND YEAR IN NOSMA IN VLADIKAVAKAZ 
 MY LIFE IN RUSSIA 
 Student life in the Russia as a med strudent
 Studying medicine in Russia offers a unique blend of academic rigor and vibrant student life. International medical students can expect a structured curriculum that includes both theoretical and practical training, with a focus on hands-on experience in hospitals. The medium of instruction is often English, but proficiency in Russian is essential for clinical rotations.
